@@ -1,2 +1,0 @@
-# Slipps
-Baby shop
